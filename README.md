@@ -1,5 +1,4 @@
-# PR9NSHU BR9ND
-# PR9NSHU H3R3
-https://youtu.be/sA6jmjtvSAU?si=EwvdvbSy-ROEGQin
+# PR1NC3 BR9ND
+#PR1NC3 H3R3
 
 ![Alt Text](https://i.imgur.com/GItqLpN.jpeg)
